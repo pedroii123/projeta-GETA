@@ -1,1 +1,1 @@
-# projeta-GETA
+# projeto-GETA
